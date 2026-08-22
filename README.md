@@ -1,0 +1,1 @@
+# Coherent-and-Incoherent-Spouting-Process-in-Spouted-Bed-A-Combined-CFD-and-Experimental-study-
